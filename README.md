@@ -1,4 +1,4 @@
-![](https://github.com/alishahrudi/alishahrudi/blob/main/profile-banner.jpg)
+![](https://github.com/alishahrudi/alishahrudi/blob/main/Black%20Technology%20LinkedIn%20Banner.png)
 
 - 👋 Hi, I’m @alishahrudi
 - 👀 I’m interested in ...
